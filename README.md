@@ -14,7 +14,6 @@
 
 - 📝 I regularly write articles on [https://technologyaware7.blogspot.com/](https://technologyaware7.blogspot.com/)
 
-- Live Project:-studynexus.me
 
 - 📫 How to reach me **dhirajsingh26206@gmail.com**
 
